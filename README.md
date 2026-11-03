@@ -1,4 +1,4 @@
-![ReHan GaMer Banner](banner.png)
+![ReHan GaMer Banner](banner.jpg)
 
 # ReHan GaMer 🚀 | Google Ads | Content Creator | AI Expert | Game Dev
 
