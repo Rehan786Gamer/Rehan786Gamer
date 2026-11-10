@@ -1,7 +1,7 @@
 <div align="center">
 <img src="banner.jpg" width="100%" />
 
-# ReHan GaMer 🚀 | Google Ads | Content Creator | AI Expert | Game Dev
+# ReHan GaMer 🚀 | Google & Meta Ads | Content Creator | AI Expert | Game Dev
 
 <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=22&pause=1000&color=00FF00&center=true&vCenter=true&width=600&lines=Dream+Big%2C+Build+Bigger;Game+Developer+%7C+AI+Agent+Expert;Meta+Ads+%7C+Google+Ads+%7C+AI+Automation;Creator+of+FREE+IMRAN+KHAN+2D+%26+3D" alt="Typing SVG" />
 
@@ -23,7 +23,7 @@
 
 ### 👨‍💻 About Me
 I'm a multi-talented Creator from Pakistan 🇵🇰
-**Real Name:** Mirza Rehan | **Studio:** ReHan GaMer Studio | **From:** Karachi, Pakistan
+**Real Name:** Mirza Rehan Ahmed Baig | **Studio:** ReHan GaMer Studio | **From:** Karachi, Pakistan
 
 - 📈 **Google Ads & Meta Ads Expert** - Search, Display, YouTube Ads, PMax, CBO/ABO Scaling, High ROAS
 - 🎬 **YouTube Channel Admin & Content Creator** - Channel Management, SEO, Monetization, Viral Content for TikTok, Facebook, YouTube & Instagram
@@ -36,7 +36,7 @@ I'm a multi-talented Creator from Pakistan 🇵🇰
 
 ### 🌐 Connect With Me
 **LinkedIn:** https://www.linkedin.com/in/مرزا-ریحان/
-**Dare Agency - For Client Ads & Marketing**
+**DiGiTaL MarKeting Agency - For Client Ads & Marketing**
 
 ---
 
